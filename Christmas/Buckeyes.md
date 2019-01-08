@@ -1,8 +1,8 @@
 # Buckeyes
 ## Ingredients 
-- 1 18 ounce jar creamy peanut butter 
-- 2 cup butter (softened)
-- 2 lb confectioners' sugar
+- 1 (18 ounce) jar creamy peanut butter 
+- 1/2 cup butter (softened)
+- 1 lb confectioners' sugar ( about 3.5 cups) 
 - 1 tablespoon vanilla 
 - 12 ounces semi-sweet chocolate chips
 - 6 tsp shortening
