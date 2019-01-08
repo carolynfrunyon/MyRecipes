@@ -1,2 +1,3 @@
 # MyRecipes
-My favorite recipes
+
+This is a repository of my family recipes.
