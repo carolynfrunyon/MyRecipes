@@ -1,6 +1,6 @@
 # Buckeyes
 ## Ingredients 
-- 1 (18 ounce) jars creamy peanut butter 
+- 1 (18 ounce) jar creamy peanut butter 
 - 2 cup butter (softened)
 - 2 lb confectioners' sugar ( about 3.5 cups) 
 - 1 tablespoon vanilla 
